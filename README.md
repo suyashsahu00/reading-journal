@@ -2,7 +2,7 @@
 
 A chronicle of pages turned, worlds explored, and minds expanded.
 
-**Total books read:** 6  
+**Total books read:** 7  
 **Re-reads:** 0  
 **Favorites:** 1  
 **Currently reading:** Have We Met & Hands-On Machine Learning with Scikit-Learn, Keras, and TensorFlow
@@ -42,6 +42,7 @@ THE AFFECTION FOR EACH OTHER THAT MATTERS.
 
 ## 2023
 
+1. 🎧 **Rich Dad Poor Dad** by Robert T. Kiyosaki ~ What the rich teach their kids about money that the poor and middle class do not! | 🔗 [Amazon](https://amzn.in/d/04U66p4l)
 
 
 ---
