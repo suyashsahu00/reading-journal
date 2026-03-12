@@ -9,4 +9,4 @@
 
 ---
 
-Got a book recommendation? Submit a PR! 💫
+Got a book recommendation? 💫 Submit a PR! See [CONTRIBUTING.md](CONTRIBUTING.md) for format & guidelines.
