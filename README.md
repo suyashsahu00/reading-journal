@@ -47,6 +47,6 @@ THE AFFECTION FOR EACH OTHER THAT MATTERS.
 
 ---
 
-Always open to recommendations! 📬
+Always open to book recommendations! 📬 See [CONTRIBUTING.md](CONTRIBUTING.md) for guidelines on submitting a PR.
 
 *Last updated: March 2026*
