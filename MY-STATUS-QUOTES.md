@@ -85,4 +85,4 @@ This work is licensed under a [Creative Commons Attribution-NonCommercial-NoDeri
 
 ---
 
-> ⚠️ **No PRs accepted for this file.** These are my personal, original quotes. See [CONTRIBUTING.md](CONTRIBUTING.md) for where you can contribute.
+> ⚠️ **No PRs accepted for this file.** These are my personal, original quotes. See [CONTRIBUTING.md](CONTRIBUTING.md) for where you can suggest a thought.
