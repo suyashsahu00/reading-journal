@@ -25,6 +25,9 @@
 > *"Curiosity is never about morality or immorality, nor about what is good or bad. As time passes, men, as well as women, driven by the urge to satisfy their curiosity, will seek answers. And if any obstacle stands in their way, they will not only remove that obstacle but will also set aside the ethics of their time to satisfy their curiosity."*
 > — Suyash Sahu, March 12, 2026
 
+> *"curiosity that can never be satisfied, murder it as soon as possible."*
+> — Suyash Sahu, 13-03-2026
+
 ---
 
 ### 🔥 Motivational
