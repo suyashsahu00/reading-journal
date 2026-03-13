@@ -27,8 +27,8 @@
 ---
 
 ### 🌙 Night Thoughts
-> *"Example status for the night."*
-> — Suyash Sahu
+> *"Today's time is not just about roti, kapda, aur makan — it's more than that."*
+> — Suyash Sahu, March 13, 2026
 
 ---
 
