@@ -1,27 +1,32 @@
 # 🤝 Contributing Guidelines
 
-Thank you for visiting my Reading Journal! Here's how you can contribute.
+Thank you for visiting my Reading Journal! 
+
+To keep my personal logs clean and organized, I **only accept Pull Requests (PRs) for this file (`CONTRIBUTING.md`)**. 
 
 ---
 
-## ✅ Where You CAN Contribute
+## ✅ How You Can Contribute
 
-### 📖 `WANT-TO-READ.md` — Book Recommendations
+If you want to suggest a **book**, a **quote**, or a **deep philosophical thought**, please add it to the **Suggestions Table** at the bottom of this file. 
 
-You can submit a **Pull Request** to recommend a book I should read!
+I will review your suggestions and manually add the ones I like to the appropriate files, giving you credit!
 
-**Format to follow:**
+---
 
+## 📐 Formatting Guides
+
+Please use the following formats when adding to the Suggestions Table:
+
+### 📖 Book Recommendations
+**Format:**
 ```markdown
-- [ ] 📚 **Book Title** by Author Name ~ Short description | 🔗 [Amazon](link-to-book)
+📚 **Book Title** by Author Name ~ Short description | 🔗 [Amazon](link)
 ```
-
 **Rules:**
-- Use the exact format shown above
-- Add your recommendation at the **end** of the list
-- Include a working Amazon/purchase link
-- Keep the description short and meaningful (1-2 lines)
-- Add an appropriate emoji before the book title
+- Include a working Amazon/purchase link.
+- Keep the description short (1-2 lines).
+- Use an appropriate emoji from the guide below.
 
 **Emoji Guide:**
 | Emoji | Category |
@@ -34,27 +39,48 @@ You can submit a **Pull Request** to recommend a book I should read!
 | 🌅 | Motivation / Productivity |
 | ⚡ | Personal Growth |
 
+### 🧠 Philosophical Thoughts
+**Format:**
+```markdown
+"Quote Content" ~ Theme (e.g., Existence, Time, Reality)
+```
+
+### ✨ Status & Quotes
+**Format:**
+```markdown
+"Quote Content" ~ Category (e.g., Life, Motivational, Emotional)
+```
+
 ---
 
-## ❌ Where You CANNOT Contribute
+### 📝 Suggestions Table
 
-### 📚 `README.md` — My Reading Journal
-> This is my **personal reading log**. Only I add books here after I've read them.
-> ❌ PRs will NOT be accepted for this file.
-
-### ✨ `MY-STATUS-QUOTES.md` — My Personal Quotes
-> These are my **original quotes**, protected under **CC BY-NC-ND 4.0** license.
-> ❌ PRs will NOT be accepted for this file.
-> ❌ You may NOT copy, modify, or claim these quotes as your own.
+| Category | Suggestion (Use the format guide above) | Suggested By |
+|----------|-----------------------------------------|--------------|
+| Philosophy | "Who am I?" ~ Identity | @yourusername |
+| Book | 🧠 **Thinking, Fast and Slow** by Carl Jung ~ A look at how we think | @yourusername |
+| Status | "Be the change you wish to see." ~ Motivational | @yourusername |
 
 ---
 
-## 📋 PR Rules
+## ❌ Restricted Files (No PRs Allowed)
 
-1. **Only modify** `WANT-TO-READ.md`
-2. **Do NOT modify** `README.md`, `MY-STATUS-QUOTES.md`, or `LICENSE`
-3. Keep your PR focused — one book recommendation per PR is preferred
-4. Be respectful and follow the format
+PRs modifying any of the following files will be **closed without review**:
+
+- 📚 `README.md` (Personal Reading Log)
+- 📖 `WANT-TO-READ.md` (Personal Wishlist)
+- ✨ `MY-STATUS-QUOTES.md` (Personal Quotes)
+- 📱 `MY-EVERYDAY-STATUS.md` (Personal Statuses)
+- 🧠 `MY-DEEP-PHILOSOPHICAL-THOUGHTS.md` (Personal Philosophy)
+
+---
+
+## 📋 General PR Rules
+
+1. **Only modify** `CONTRIBUTING.md`.
+2. **Add your suggestion** to the bottom of the table.
+3. Keep it respectful, original, and meaningful.
+4. Ensure your Amazon links are clean and working.
 
 ---
 
@@ -65,4 +91,4 @@ By contributing, you agree that your contribution will be under the same license
 
 ---
 
-**Thank you for contributing! 📬**
+**Thank you for helping me grow my collections! 📬**
