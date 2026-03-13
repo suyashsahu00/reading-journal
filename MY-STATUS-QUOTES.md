@@ -28,6 +28,9 @@
 > *"Murder all those curiosities of yours that you can never satisfy."*
 > — Suyash Sahu, March 13, 2026
 
+> *"The problem is not in the answer but in the interpretation."*
+> — Suyash Sahu, March 13, 2026
+
 ---
 
 ### 🔥 Motivational
