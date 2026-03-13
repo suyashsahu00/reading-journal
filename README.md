@@ -18,7 +18,7 @@ A chronicle of pages turned, worlds explored, and minds expanded.
 ## 2026
 
 1. 🖤📖 **Have We Met?** by Joyeeta Biswas ~ SMILES, LOOKS AND TOUCHES DON'T MATTER, IT IS
-THE AFFECTION FOR EACH OTHER THAT MATTERS.
+THE AFFECTION FOR EACH OTHER THAT MATTERS. | 🔗 [Amazon](https://amzn.in/d/0fiL1DXv)
 
  
 ---
