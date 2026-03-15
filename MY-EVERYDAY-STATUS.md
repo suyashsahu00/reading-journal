@@ -33,8 +33,18 @@
 ---
 
 ### ⚡ Random Bursts
-> *"Example status for a random moment."*
-> — Suyash Sahu
+> *"Bear in mind who is pure-hearted and who is not… Perhaps the person to whom you are referring is pure-hearted, and perhaps the person you are looking at is impure! It doesn't follow gender — whether the person is a girl or a boy."*
+> — Suyash Sahu, March 14, 2026
+
+> *"Being selective is not a crime! Both for males and females. You should be as selective as you can, but before that, remember to know your worth first."*
+> — Suyash Sahu, March 14, 2026
+
+> *"The story rarely depends on its characters; it depends on the storyteller or storywriter. If they want to make it happy, they can; if they choose to make it chaotic, they can; if they wish to make it melancholic, they can."*
+> — Suyash Sahu, March 15, 2026
+
+> *"Most things in this world are not perfect; it requires effort to make them perfect! Being imperfect many times makes you beautiful!"*
+> — Suyash Sahu, March 15, 2026
+
 
 ---
 
