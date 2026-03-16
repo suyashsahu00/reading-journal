@@ -30,6 +30,9 @@
 > *"What is air? It is the invisible ocean we swim in, yet we only notice it when it's gone or when it moves."*
 > — Suyash Sahu, March 13, 2026
 
+> *"अगर कुछ हो ही ना देखने को तो कैसे पता की हम देख भी सकते है ?"*
+> — Suyash Sahu, March 15, 2026
+
 ---
 
 ### ⏳ Time & Change
