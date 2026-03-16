@@ -8,7 +8,7 @@ To keep my personal logs clean and organized, I **only accept Pull Requests (PRs
 
 ## ✅ How You Can Contribute
 
-If you want to suggest a **book**, a **quote**, or a **deep philosophical thought**, please add it to the **Suggestions Table** at the bottom of this file. 
+If you want to suggest a **book**, a **quote**, a **deep philosophical thought**, or a **confusing topic** for discussion, please add it to the **Suggestions Table** at the bottom of this file. 
 
 I will review your suggestions and manually add the ones I like to the appropriate files, giving you credit!
 
@@ -51,6 +51,12 @@ Please use the following formats when adding to the Suggestions Table:
 "Quote Content" ~ Category (e.g., Life, Motivational, Emotional)
 ```
 
+### 🌀 Confusion Topics (Analysis Paralysis)
+**Format:**
+```markdown
+"Confusion Topic/Question" ~ Theme (e.g., Decisions, Existential, Ethics)
+```
+
 ---
 
 ### 📝 Suggestions Table
@@ -60,6 +66,7 @@ Please use the following formats when adding to the Suggestions Table:
 | Philosophy | "Who am I?" ~ Identity | @yourusername |
 | Book | 🧠 **Thinking, Fast and Slow** by Carl Jung ~ A look at how we think | @yourusername |
 | Status | "Be the change you wish to see." ~ Motivational | @yourusername |
+| Confusion | "Is absolute freedom a burden?" ~ Philosophy | @yourusername |
 
 ---
 
@@ -72,6 +79,7 @@ PRs modifying any of the following files will be **closed without review**:
 - ✨ `MY-STATUS-QUOTES.md` (Personal Quotes)
 - 📱 `MY-EVERYDAY-STATUS.md` (Personal Statuses)
 - 🧠 `MY-DEEP-PHILOSOPHICAL-THOUGHTS.md` (Personal Philosophy)
+- 🌀 `DISCUSSION-CONFUSION-ANALYSIS-PARALYSIS.md` (Personal Discussion Topics)
 
 ---
 
