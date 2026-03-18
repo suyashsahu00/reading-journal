@@ -53,10 +53,10 @@
 
 ---
 
-### 😎 Attitude
+### 🌪️ Reality, Unmasked
 
-> *"quote ."*
-> — Suyash Sahu
+> *"If modernity means obscurity and vulgarity, then spit in the face of that modernity."*
+> — Suyash Sahu, March 18, 2026
 
 > *"quote ."*
 > — Suyash Sahu
