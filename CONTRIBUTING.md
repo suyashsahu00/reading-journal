@@ -80,6 +80,7 @@ PRs modifying any of the following files will be **closed without review**:
 - 📱 `MY-EVERYDAY-STATUS.md` (Personal Statuses)
 - 🧠 `MY-DEEP-PHILOSOPHICAL-THOUGHTS.md` (Personal Philosophy)
 - 🌀 `DISCUSSION-CONFUSION-ANALYSIS-PARALYSIS.md` (Personal Discussion Topics)
+- 👁️ `OBSERVATION-&-NOTICING.md` (Personal Observations)
 
 ---
 
