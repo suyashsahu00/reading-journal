@@ -31,6 +31,9 @@
 > *"The problem is not in the answer but in the interpretation."*
 > — Suyash Sahu, March 13, 2026
 
+> *"If you have no permission to choose anything in your life, then why are you even allowing options to enter your life?"*
+> — Suyash Sahu, March 18, 2026
+
 ---
 
 ### 🔥 Motivational
