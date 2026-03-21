@@ -60,7 +60,7 @@
 > *"The day I realized I am Bunny. Thank you 💚."*
 > — Suyash Sahu, March 21, 2026
 
-> *"I think ,I am a seer. It's a blessing and a curse."*
+> *"I think, I am a seer. It's a blessing and a curse."*
 > — Suyash Sahu, March 21, 2026
 
 
