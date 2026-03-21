@@ -77,6 +77,8 @@ the rare qualities that intuitives carry.
 
 <br>
 
+![Deeply Intuitives](images/medium-thumbnails/Deeply%20Intuitives.png)
+
 > **Deeply Intuitives — INTJ, INFJ, INFP, INTP**
 >
 > To all the INs, please stop seeking surface-level connections with anyone in your life. Stop letting random people into your life.
