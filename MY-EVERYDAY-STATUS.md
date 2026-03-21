@@ -54,6 +54,9 @@
 > *"The red dress 👗 looks gorgeous, yaar! 🥵"*
 > — Suyash Sahu, March 18, 2026
 
+> *"This is the day I prayed for someone — I don't know whether it has been months or years since I last prayed for anyone else, but today is the day I prayed for her 💚 to Durga Mata."*
+> — Suyash Sahu, March 20, 2026
+
 > *"The day I realized I am Bunny. Thank you 💚."*
 > — Suyash Sahu, March 21, 2026
 
