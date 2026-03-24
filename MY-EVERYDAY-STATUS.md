@@ -63,6 +63,9 @@
 > *"I think, I am a seer. It's a blessing and a curse."*
 > — Suyash Sahu, March 21, 2026
 
+> *"ज्ञान ही सत्य है, इंसान तुच्छ है।"*
+> — Suyash Sahu, March 23, 2026
+
 
 
 
