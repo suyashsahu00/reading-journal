@@ -71,8 +71,8 @@
 > *"If you are loyal to her qualities, you are not absolutely loyal. But if you are loyal to her alone, you are truly loyal."*
 > — Suyash Sahu, March 26, 2026
 
-> *"quote ."*
-> — Suyash Sahu
+> *"If you are loyal to his qualities, you are not truly loyal. But if you are loyal to him alone, you are absolutely loyal."*
+> — Suyash Sahu, March 26, 2026
 
 ---
 
