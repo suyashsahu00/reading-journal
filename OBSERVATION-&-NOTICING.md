@@ -31,6 +31,16 @@ about people, objects, nature, scenarios, and the world around me.
 
 ### 👦👧 People
 
+> *"Good people should not help others, and if they do, they must not expect anything in return."*
+> — Suyash Sahu, March 8, 2026
+
+> *"Don't try to waste your energy on converting a grudge-filled, pessimistic person into an optimistic person.*
+> 
+> *A pessimistic person will attract the pessimistic.*
+> 
+> *An optimistic person will attract the optimistic."*
+> — Suyash Sahu, March 13, 2026
+
 > *"Boys with long hair tend to touch their hair more often than girls whose hair is five times longer."*
 > — Suyash Sahu, March 16, 2026
 
