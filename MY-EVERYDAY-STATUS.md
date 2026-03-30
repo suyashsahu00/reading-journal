@@ -66,6 +66,9 @@
 > *"ज्ञान ही सत्य है, इंसान तुच्छ है।"*
 > — Suyash Sahu, March 23, 2026
 
+> *"The day I saw two gorgeous, beautiful, astonishing, and stunning moons: the one who watches over me from the top of my heaven, and the one whom I saw right before me. 💚"*
+> — Suyash Sahu, March 29, 2026
+
 
 
 
