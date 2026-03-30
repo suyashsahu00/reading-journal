@@ -31,6 +31,25 @@ about people, objects, nature, scenarios, and the world around me.
 
 ### 👦👧 People
 
+> *"Do you know the most heartfelt thing you can do for someone?*
+> 
+> *By giving them one of the most precious things in your entire life....*
+> 
+> *Your time!!!*
+> 
+> *By giving your time as well as understanding that person, listening to that person...*
+> 
+> *The moment you do this...*
+> 
+> *You will be blessed by two of the most precious things in this entire cosmos —*
+> 
+> *1st by that person's heart, and 2nd by your own true heart...*
+> 
+> *And the moment you do this and start listening to your heart...*
+> 
+> *You will really feel that you have contributed something very big to this humanity."*
+> — Suyash Sahu, September 22, 2025
+
 > *"Good people should not help others, and if they do, they must not expect anything in return."*
 > — Suyash Sahu, March 8, 2026
 
