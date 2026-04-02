@@ -2,7 +2,7 @@
 
 A chronicle of pages turned, worlds explored, and minds expanded.
 
-**Total books read:** 7  
+**Total books read:** 8  
 **Re-reads:** 0  
 **Favorites:** 1  
 **Currently reading:** Have We Met & Hands-On Machine Learning with Scikit-Learn, Keras, and TensorFlow
@@ -19,8 +19,8 @@ A chronicle of pages turned, worlds explored, and minds expanded.
 
 1. 🖤📖 **Have We Met?** by Joyeeta Biswas ~ SMILES, LOOKS AND TOUCHES DON'T MATTER, IT IS
 THE AFFECTION FOR EACH OTHER THAT MATTERS. | 🔗 [Amazon](https://amzn.in/d/0fiL1DXv)
+2. ⛵ **October Junction** by Divya Prakash Dubey ~ हमारी दो जिंदगियाँ होती हैं, एक जो हम हर दिन जीते हैं दूसरी जो हम हर दिन जीना चाहते हैं, उस दूसरी जिंदगी के नाम। | 🔗 [Amazon](https://amzn.in/d/05vzJ1Yx)
 
- 
 ---
 
 ## 2025
@@ -49,4 +49,4 @@ THE AFFECTION FOR EACH OTHER THAT MATTERS. | 🔗 [Amazon](https://amzn.in/d/0fi
 
 Always open to book recommendations! 📬 See [CONTRIBUTING.md](CONTRIBUTING.md) for guidelines on submitting a PR.
 
-*Last updated: March 2026*
+*Last updated: April 2026*
