@@ -63,6 +63,9 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Boys with long hair tend to touch their hair more often than girls whose hair is five times longer."*
 > — Suyash Sahu, March 16, 2026
 
+> *"For the deeply intuitive: You don't go with someone just to watch a movie. You go to live the character the movie breathes into existence."*
+> — Suyash Sahu, March 26, 2026
+
 > *"If being ‘bad’ is the only way people will choose you… respect you… love you… call you their own—then maybe being bad isn’t a mistake.*
 > *But is it really the fault of the one who turns bad? Or is it the fault of those pathetic souls who never gave dignity to the good, even when they knew the truth? Who saw the goodness, felt it, and still chose the mask over the mirror?*
 > *So who’s wrong here? The good soul who became bad… or the ones who never had the courage to accept goodness when it stood right in front of them?"*
