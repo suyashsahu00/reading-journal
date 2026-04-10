@@ -79,6 +79,11 @@
 > *वो पूछते हैं रहती कहाँ?..."*
 > — Suyash Sahu, April 9, 2026, 11:50 PM
 
+> *"What stunning songs Student of the Year has, yaar!!! 💜 I was listening to all those songs throughout my entire second half.*
+>
+> *The day I realised that my entire college life is about to end... 😭"*
+> — Suyash Sahu, April 10, 2026
+
 
 
 
