@@ -82,6 +82,7 @@ PRs modifying any of the following files will be **closed without review**:
 - 🌀 `DISCUSSION-CONFUSION-ANALYSIS-PARALYSIS.md` (Personal Discussion Topics)
 - 👁️ `OBSERVATION-&-NOTICING.md` (Personal Observations)
 - 🌌 `MY-DEEPLY-INTUITIVES-INTJ-INFJ-INFP-INTP.md` (Personal Writings on Deeply Intuitive Types)
+- ✒️ `My-Kavita-Shayari-Muhavare-Thoughts.md` (Personal Poetry and Thoughts)
 
 ---
 

@@ -1,9 +1,9 @@
 # 📱 My Everyday Status
 
 > **© 2026 Suyash Sahu. All Rights Reserved.**
-> 
+>
 > This work is licensed under [Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License](https://creativecommons.org/licenses/by-nc-nd/4.0/).
-> 
+>
 > ⚠️ **You may NOT copy, modify, or claim these status updates as your own.**
 > If you want to share, you MUST give proper credit to the original author.
 
@@ -21,71 +21,78 @@
 ## 💭 Status Collection
 
 ### ☀️ Morning Vibes
-> *"Example status for the morning."*
+
+> _"Example status for the morning."_
 > — Suyash Sahu
 
 ---
 
 ### 🌙 Night Thoughts
-> *"Today's time is not just about roti, kapda, aur makan — it's more than that."*
+
+> _"Today's time is not just about roti, kapda, aur makan — it's more than that."_
 > — Suyash Sahu, March 13, 2026
 
 ---
 
 ### ⚡ Random Bursts
-> *"Bear in mind who is pure-hearted and who is not… Perhaps the person to whom you are referring is pure-hearted, and perhaps the person you are looking at is impure! It doesn't follow gender — whether the person is a girl or a boy."*
+
+> _"Bear in mind who is pure-hearted and who is not… Perhaps the person to whom you are referring is pure-hearted, and perhaps the person you are looking at is impure! It doesn't follow gender — whether the person is a girl or a boy."_
 > — Suyash Sahu, March 14, 2026
 
-> *"Being selective is not a crime! Both for males and females. You should be as selective as you can, but before that, remember to know your worth first."*
+> _"Being selective is not a crime! Both for males and females. You should be as selective as you can, but before that, remember to know your worth first."_
 > — Suyash Sahu, March 14, 2026
 
-> *"The story rarely depends on its characters; it depends on the storyteller or storywriter. If they want to make it happy, they can; if they choose to make it chaotic, they can; if they wish to make it melancholic, they can."*
+> _"The story rarely depends on its characters; it depends on the storyteller or storywriter. If they want to make it happy, they can; if they choose to make it chaotic, they can; if they wish to make it melancholic, they can."_
 > — Suyash Sahu, March 15, 2026
 
-> *"Most things in this world are not perfect; it requires effort to make them perfect! Being imperfect many times makes you beautiful!"*
+> _"Most things in this world are not perfect; it requires effort to make them perfect! Being imperfect many times makes you beautiful!"_
 > — Suyash Sahu, March 15, 2026
 
-> *"Don't sit near your friend or someone who sneezes; you may love them, but you definitely don't love their sneezes."*
+> _"Don't sit near your friend or someone who sneezes; you may love them, but you definitely don't love their sneezes."_
 > — Suyash Sahu, March 16, 2026
 
-> *"In the end, what matters? Results!!!"*
+> _"In the end, what matters? Results!!!"_
 > — Suyash Sahu, March 17, 2026
 
-> *"The red dress 👗 looks gorgeous, yaar! 🥵"*
+> _"The red dress 👗 looks gorgeous, yaar! 🥵"_
 > — Suyash Sahu, March 18, 2026
 
-> *"This is the day I prayed for someone — I don't know whether it has been months or years since I last prayed for anyone else, but today is the day I prayed for her 💚 to Durga Mata."*
+> _"This is the day I prayed for someone — I don't know whether it has been months or years since I last prayed for anyone else, but today is the day I prayed for her 💚 to Durga Mata."_
 > — Suyash Sahu, March 20, 2026
 
-> *"The day I realized I am Bunny. Thank you 💚."*
+> _"The day I realized I am Bunny. Thank you 💚."_
 > — Suyash Sahu, March 21, 2026
 
-> *"I think, I am a seer. It's a blessing and a curse."*
+> _"I think, I am a seer. It's a blessing and a curse."_
 > — Suyash Sahu, March 21, 2026
 
-> *"ज्ञान ही सत्य है, इंसान तुच्छ है।"*
+> _"ज्ञान ही सत्य है, इंसान तुच्छ है।"_
 > — Suyash Sahu, March 23, 2026
 
-> *"The day I saw two gorgeous, beautiful, astonishing, and stunning moons: the one who watches over me from the top of my heaven, and the one whom I saw right before me. 💚"*
+> _"The day I saw two gorgeous, beautiful, astonishing, and stunning moons: the one who watches over me from the top of my heaven, and the one whom I saw right before me. 💚"_
 > — Suyash Sahu, March 29, 2026
 
-> *"The day when you finally forget all past grudges, save her number, and check her status. 💚"*
+> _"The day when you finally forget all past grudges, save her number, and check her status. 💚"_
 > — Suyash Sahu, March 30, 2026
 
-> *"When mutual viewing of each other’s status occurs. 💚"*
+> _"When mutual viewing of each other’s status occurs. 💚"_
 > — Suyash Sahu, April 2, 2026
 
-> *"Have you ever tried to listen to a soothing, loving song around midnight in no disturbance, so chill?*
-> *वो पूछते हैं रहती कहाँ?..."*
+> _"Have you ever tried to listen to a soothing, loving song around midnight in no disturbance, so chill?_
+> _वो पूछते हैं रहती कहाँ?..."_
 > — Suyash Sahu, April 9, 2026, 11:50 PM
 
-> *"What stunning songs Student of the Year has, yaar!!! 💜 I was listening to all those songs throughout my entire second half.*
+> _"What stunning songs Student of the Year has, yaar!!! 💜 I was listening to all those songs throughout my entire second half._
 >
-> *The day I realised that my entire college life is about to end... 😭"*
+> _The day I realised that my entire college life is about to end... 😭"_
 > — Suyash Sahu, April 10, 2026
 
+> _"The day even God prayed for me!!!"_
+> — Suyash Sahu, April 11, 2026
 
-
+> _"Sach ka saamna kar, Suyash — kya tu sach ko dekh payega?_
+> _Khud ka saath de, Suyash — kya tera koi saath de payega?"_
+> — Suyash Sahu, April 12, 2026
 
 ---
 
@@ -95,8 +102,8 @@
 
 This work is licensed under a [Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License](https://creativecommons.org/licenses/by-nc-nd/4.0/).
 
-**Author:** Suyash Sahu  
-**Year:** 2026  
+**Author:** Suyash Sahu
+**Year:** 2026
 **Contact:** [GitHub Profile](https://github.com/suyashsahu00)
 
 ---
