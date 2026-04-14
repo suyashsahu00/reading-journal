@@ -71,6 +71,9 @@ about people, objects, nature, scenarios, and the world around me.
 > *So who’s wrong here? The good soul who became bad… or the ones who never had the courage to accept goodness when it stood right in front of them?"*
 > — Suyash Sahu, March 29, 2026
 
+> *"सिर्फ एक बार किसी को समझ लेना काफी नहीं होता... अगर उनके साथ जीना है... रहना है... तो उन्हें समझते ही रहना होगा।"*
+> — Suyash Sahu, April 14, 2026
+
 ---
 
 ### 🌿 Nature
