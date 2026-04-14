@@ -40,44 +40,38 @@ Enjoy my writing, and yes, follow these steps while reading:
 <details>
 <summary>🌸💜🌺🪻✨</summary>
 <div align="center">
-  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/ना%20जाने%20तू%20उन%20पंखुड़ी%20पे%20बैठ%20पाएगा/Butterfly_on_Flower.jpg" width="80%">
+  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/ना%20जाने%20तू%20उन%20पंखुड़ी%20पे%20बैठ%20पाएगा/Butterfly_on_Flower.jpg" width="100%">
 </div>
 </details>
 
 <details>
 <summary>🦋🌸🌼🌿💫</summary>
 <div align="center">
-  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/ना%20जाने%20तू%20उन%20पंखुड़ी%20पे%20बैठ%20पाएगा/Purple_Flower_(Lilac).jpg" width="80%">
+  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/ना%20जाने%20तू%20उन%20पंखुड़ी%20पे%20बैठ%20पाएगा/Purple_Flower_(Lilac).jpg" width="100%">
 </div>
 </details>
 
 <details>
 <summary>🦋💭🌺❓✨🪶🌬️🎯💜🕊️</summary>
-<div align="center">
-  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/ना%20जाने%20तू%20उन%20पंखुड़ी%20पे%20बैठ%20पाएगा/ना%20जाने%20तू%20उन%20पंखुड़ी%20पे%20बैठ%20पाएगा.png" width="80%">
-</div>
-</details>
 
 <br>
 
-<div align="center">
+**ना जाने तू उन पंखुड़ी पे बैठ पाएगा?**  
+प्रकृति का रूप देख, क्या खुद को तू समझ पाएगा?  
+खुद को समझ ले तू... क्या दूसरों को समझ पाएगा?  
+समझने की दौड़ में, यूँ उड़ चला है तू...  
+खुद सोच... क्या तू दौड़ पाएगा?  
+ना जाने तू क्या अपने पंख फड़फड़ायेगा?  
+ना जाने तू उन पंखुड़ी पे बैठ पाएगा?  
+ना जाने जब वक्त आएगा... तब तू अपना रंग दिखा पाएगा?  
+ना जाने जब दौड़ रहे होंगे लोग...  
+तब तू क्या उड़ता चला जाएगा?  
+तब तू क्या उड़ता चला जाएगा?  
 
-ना जाने तू उन पंखुड़ी पे बैठ पाएगा?`<br><br>`
-प्रकृति का रूप देख, क्या खुद को तू समझ पाएगा?`<br>`
-खुद को समझ ले तू... क्या दूसरों को समझ पाएगा?`<br>`
-समझने की दौड़ में, यूँ उड़ चला है तू...`<br>`
-खुद सोच... क्या तू दौड़ पाएगा?`<br>`
-ना जाने तू क्या अपने पंख फड़फड़ायेगा?`<br>`
-ना जाने तू उन पंखुड़ी पे बैठ पाएगा?`<br>`
-ना जाने जब वक्त आएगा... तब तू अपना रंग दिखा पाएगा?`<br>`
-ना जाने जब दौड़ रहे होंगे लोग...`<br>`
-तब तू क्या उड़ता चला जाएगा?`<br>`
-तब तू क्या उड़ता चला जाएगा? `<br>`
-`<br>`
-— सुयश साहू `<br>`
+— सुयश साहू  
 14 अप्रैल, 2026
 
-</div>
+</details>
 
 </details>
 
