@@ -94,6 +94,10 @@
 > _Khud ka saath de, Suyash — kya tera koi saath de payega?"_
 > — Suyash Sahu, April 12, 2026
 
+> _"तु उस फूल का इंतेजार कर जो तेरे लिए अभी तक खिला ही नही।_
+> _Wait for that flower which has not yet bloomed for you."_
+> — Suyash Sahu, April 14, 2026
+
 ---
 
 ## 📜 License
