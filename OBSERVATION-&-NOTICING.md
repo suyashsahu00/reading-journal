@@ -74,6 +74,9 @@ about people, objects, nature, scenarios, and the world around me.
 > *"सिर्फ एक बार किसी को समझ लेना काफी नहीं होता... अगर उनके साथ जीना है... रहना है... तो उन्हें समझते ही रहना होगा।"*
 > — Suyash Sahu, April 14, 2026
 
+> *"Ask yourself: Are you in love with the person, or are you in love with the feeling that the person is giving you? Are you the catalyst from whom the other person is getting that feeling?"*
+> — Suyash Sahu, April 17, 2026
+
 ---
 
 ### 🌿 Nature
