@@ -84,6 +84,12 @@ about people, objects, nature, scenarios, and the world around me.
 > If a person doesn't express their feelings, that person is considered toxic."*
 > — Suyash Sahu, April 23, 2026
 
+> *"MAYBE MEN AREN'T AFRAID OF LOVE ...
+> MAYBE THEY'RE TIRED OF SURVIVING IT."
+>
+> THEY STOPPED BELIEVING THAT love would be fair.*
+> — Suyash Sahu, April 23, 2026
+
 ---
 
 ### 🌿 Nature
