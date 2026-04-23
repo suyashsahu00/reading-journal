@@ -112,7 +112,14 @@ about people, objects, nature, scenarios, and the world around me.
 
 ### 🌐 Lifestyle
 
-> *(No entries yet — add your first observation!)*
+> *"If you are a picky person chasing quality, then please be picky, yaar...
+>
+> Why the hell are you even thinking about society or the views of people around you?
+>
+> Always choose the quality you want — don't diminish your standards...
+>
+> I would even say, choose above your current standard if possible; you will definitely feel better in life."*
+> — Suyash Sahu, April 23, 2026
 
 ---
 
