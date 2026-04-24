@@ -1,9 +1,9 @@
 # ✨ My Status Quotes
 
 > **© 2026 Suyash Sahu. All Rights Reserved.**
-> 
+>
 > This work is licensed under [Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License](https://creativecommons.org/licenses/by-nc-nd/4.0/).
-> 
+>
 > ⚠️ **You may NOT copy, modify, or claim these quotes as your own.**
 > If you want to share, you MUST give proper credit to the original author.
 
@@ -68,6 +68,9 @@
 
 ### 🖤 Love
 
+> *"If someone doesn't even know how to love or respect themselves, how can they give that love to someone else? How could they possibly give it to you?"*
+> — (🤍) | Suyash Sahu, April 19, 2025
+
 > *"If you are loyal to her qualities, you are not absolutely loyal. But if you are loyal to her alone, you are truly loyal."*
 > — Suyash Sahu, March 26, 2026
 
@@ -82,8 +85,8 @@
 
 This work is licensed under a [Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License](https://creativecommons.org/licenses/by-nc-nd/4.0/).
 
-**Author:** Suyash Sahu  
-**Year:** 2026  
+**Author:** Suyash Sahu
+**Year:** 2026
 **Contact:** [GitHub Profile](https://github.com/suyashsahu00)
 
 ---
