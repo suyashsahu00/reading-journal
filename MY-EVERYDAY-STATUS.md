@@ -102,6 +102,9 @@
 > _The day I realised that my entire college life is about to end... 😭"_
 > — Suyash Sahu, April 10, 2026
 
+> _"Aaisi jindagi jeene ka matlab kya jisme tum jaise dost ho hi na"_
+> — Suyash Sahu, April 10, 2026
+
 > _"The day even God prayed for me!!!"_
 > — Suyash Sahu, April 11, 2026
 
