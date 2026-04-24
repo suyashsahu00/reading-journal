@@ -39,6 +39,14 @@
 > _"Today's time is not just about roti, kapda, aur makan — it's more than that."_
 > — Suyash Sahu, March 13, 2026
 
+> _"The day I realized why I have to become successful — what my purpose in life is — I felt like I was born for a reason._
+>
+> _Agar Suyash, tu successful ban gaya toh tujhe kya milega? Har introvert... har deeply intuitive... har INTJ... ke chehre par jo khushi rahegi na — tujhe unhe dekh kar sabse zyada khushi milegi..._
+>
+> _Unke liye ban, khud ke liye ban!!!_
+> _Unke liye ji, khud ke liye ji!!!"_
+> — Suyash Sahu, April 13, 2026
+
 ---
 
 ### ⚡ Random Bursts
