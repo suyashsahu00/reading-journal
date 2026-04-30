@@ -97,6 +97,9 @@ about people, objects, nature, scenarios, and the world around me.
 > तुम उसी गंदी नाली के कीड़े हो जो उसी में जी कर, उसी को हर चीज़ समझ कर, हर भोग-व्यास में पड़ कर, उसी गंदी नाली के उसी गंदे कीड़े जैसी मौत मरेगा।"*
 > — Suyash Sahu, April 26, 2026
 
+> *"When you tend to see both extremes of different versions, you tend to think — is it still worth it to try?"*
+> — Suyash Sahu, April 30, 2026
+
 ---
 
 ### 🌿 Nature
