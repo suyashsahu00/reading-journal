@@ -100,6 +100,9 @@ about people, objects, nature, scenarios, and the world around me.
 > *"When you tend to see both extremes of different versions, you tend to think — is it still worth it to try?"*
 > — Suyash Sahu, April 30, 2026
 
+> *"जिंदा आदमी की कोई इज़्ज़त नहीं है, इज़्ज़त है तो बस उसके documents की।"*
+> — Suyash Sahu, May 2, 2026
+
 ---
 
 ### 🌿 Nature
