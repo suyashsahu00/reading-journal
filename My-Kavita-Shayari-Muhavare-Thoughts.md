@@ -10,7 +10,7 @@ This MD file contains very few of my beautiful, astonishing, gorgeous, and heart
 
 I have written all of this in such a deeply intuitive way that when you realize what you have read and what I have written, you are going to say one thing from the bottom of your heart —
 
-*"क्या कविता है यार! ऐसा लगता है अपना दिल निकाल के रख दिया हो!!!"*
+_"क्या कविता है यार! ऐसा लगता है अपना दिल निकाल के रख दिया हो!!!"_
 
 Just ignore the surroundings around you, go deep down into me — my thoughts, my imagination… you will attain a depth that you have never felt before in your life.
 Even such a depth that it will feel like you have attained enlightenment with me.
@@ -19,10 +19,10 @@ Even such a depth that it will feel like you have attained enlightenment with me
 
 Enjoy my writing, and yes, follow these steps while reading:
 
-1) Do an in-depth understanding of the image that I will attach with the writing — derive as much intuition as you have gathered in your entire life.
-2) Read my writing.
-3) Then read my description of that writing (if I have written it).
-4) Again, read my poem with my intuition… If you have truly understood it, you will reach the uttermost level of your cosmos — it will even feel like you are getting enlightened just by reading my work.
+1. Do an in-depth understanding of the image that I will attach with the writing — derive as much intuition as you have gathered in your entire life.
+2. Read my writing.
+3. Then read my description of that writing (if I have written it).
+4. Again, read my poem with my intuition… If you have truly understood it, you will reach the uttermost level of your cosmos — it will even feel like you are getting enlightened just by reading my work.
 
 ---
 
@@ -30,6 +30,7 @@ Enjoy my writing, and yes, follow these steps while reading:
 
 1. [ना जाने तू उन पंखुड़ी पे बैठ पाएगा?](#poem-1)
 2. [मृत्यु Death](#poem-2)
+3. [बंधन या साथ ?](#poem-3)
 
 ---
 
@@ -128,8 +129,56 @@ Enjoy my writing, and yes, follow these steps while reading:
 
 </details>
 
+<details>
+<summary><h3 id="poem-3">बंधन या साथ ?</h3></summary>
+
+<details>
+<summary>🧵👐🌑✨</summary>
+<div align="center">
+  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/बंधन%20या%20साथ/The%20Disconnected%20Hands.png" width="100%">
+</div>
+</details>
+
+<details>
+<summary>🪑🔗🏚️🌫️</summary>
+<div align="center">
+  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/बंधन%20या%20साथ/The%20Tied%20Chairs.png" width="100%">
+</div>
+</details>
+
+<details>
+<summary>🛋️⛓️✨🏛️</summary>
+<div align="center">
+  <img src="images/My-Kavita-Shayari-Muhavare-Thoughts-thumbnails/बंधन%20या%20साथ/Holding%20On,%20Letting%20Go.png" width="100%">
+</div>
+</details>
+
+<details>
+<summary>💭📜⚖️💫</summary>
+
+<div align="center">
+
+**बंधन या साथ ?**<br><br>
+बंधन में बँधना सब को है...<br>
+पर शायद सच में, कोई किसी का साथ नहीं देना चाहता।<br>
+<br>
+क्या बंधन में बँधना ज़्यादा ज़रूरी है, या साथ देना?<br>
+उस बंधन का क्या करोगे, जिसमें साथ ही न हो?<br>
+<br>
+और अगर साथ हो — हमेशा का —<br>
+तो क्या बंधन की ज़रूरत है?<br>
+<br>
+— सुयश साहू<br>
+3 मई, 2026
+
+</div>
+
+</details>
+
+</details>
+
 ---
 
 ## 📜 License Information
 
-*Please note the copyright notice at the top of this file. These specific works are uniquely protected and are not available for reuse or modification without explicit permission.*
+_Please note the copyright notice at the top of this file. These specific works are uniquely protected and are not available for reuse or modification without explicit permission._

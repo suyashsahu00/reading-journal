@@ -29,6 +29,10 @@ I use this to:
 > *"Why do you think greed is bad? Or why do you think greed is good? Won't having absolutely no greed achieve anything for you or get you anywhere in life?"*
 > — Suyash Sahu, March 16, 2026
 
+### 🔗 Bandhan (Bondage) vs. Saath (Companionship)
+> *"बंधन में बँधना सब को है... पर शायद सच में, कोई किसी का साथ नहीं देना चाहता। क्या बंधन में बँधना ज़्यादा ज़रूरी है, या साथ देना? उस बंधन का क्या करोगे, जिसमें साथ ही न हो? और अगर साथ हो — हमेशा का — तो क्या बंधन की ज़रूरत है?"*
+> — Suyash Sahu, May 03, 2026
+
 ---
 
 ## 📜 License
