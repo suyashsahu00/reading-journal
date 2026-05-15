@@ -33,6 +33,9 @@
 > *"अगर कुछ हो ही ना देखने को तो कैसे पता की हम देख भी सकते है ?"*
 > — Suyash Sahu, March 15, 2026
 
+> *"Do you know what finally happens when air accepts the water? They both create a storm!!!"*
+> — Suyash Sahu, May 15, 2026
+
 ---
 
 ### ⏳ Time & Change
