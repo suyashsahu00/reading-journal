@@ -34,6 +34,12 @@
 > *"If you have no permission to choose anything in your life, then why are you even allowing options to enter your life?"*
 > — Suyash Sahu, March 18, 2026
 
+> *"Remember one thing: the biggest, most precious thing in this entire universe is no other person — it's your time. You must rule by your time, not by anyone else's attention or anything of that sort. Similar types of people can come and go in your life, but the time you wasted will never ever come back. The respect must be for your time, not necessarily for that person who isn't worth it."*
+> — Suyash Sahu, May 06, 2026
+
+> *"Sacrifice without value is self-destruction."*
+> — Suyash Sahu, May 06, 2026
+
 ---
 
 ### 🔥 Motivational
@@ -56,6 +62,16 @@
 
 ---
 
+### ⚔️ Attitude (Self-worth & Power)
+
+> *"Controlled danger is the biggest beauty that a person should possess!"*
+> — Suyash Sahu, May 06, 2026
+
+> *"If the world wants bad, give them bad; it's simple."*
+> — Suyash Sahu, May 06, 2026
+
+---
+
 ### 🌪️ Reality, Unmasked
 
 > *"If modernity means obscurity and vulgarity, then spit in the face of that modernity."*
@@ -63,6 +79,9 @@
 
 > *"सबको लगता है कि समय मौसम को बदल सकता है। वो गलत है, समय के अंदर इतना दम ही नहीं है कि वो मौसम को बदल सके। मौसम को बदलने का दम हवाओं में है। लोग नहीं समझते, पर हर मौसम के बदलाव की शुरुआत हवाओं से ही होती है और हवाओं ने ही उसका अंत किया है।"*
 > — Suyash Sahu, May 8, 2026
+
+> *"It is an unequal society where money has been scarce for centuries, so when you don't have actual currency, something else becomes the currency."*
+> — Suyash Sahu, May 06, 2026
 
 ---
 
