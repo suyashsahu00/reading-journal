@@ -61,8 +61,8 @@
 > *"If modernity means obscurity and vulgarity, then spit in the face of that modernity."*
 > — Suyash Sahu, March 18, 2026
 
-> *"quote ."*
-> — Suyash Sahu
+> *"सबको लगता है कि समय मौसम को बदल सकता है। वो गलत है, समय के अंदर इतना दम ही नहीं है कि वो मौसम को बदल सके। मौसम को बदलने का दम हवाओं में है। लोग नहीं समझते, पर हर मौसम के बदलाव की शुरुआत हवाओं से ही होती है और हवाओं ने ही उसका अंत किया है।"*
+> — Suyash Sahu, May 8, 2026
 
 ---
 
