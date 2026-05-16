@@ -77,6 +77,9 @@
 > *"If you are loyal to his qualities, you are not truly loyal. But if you are loyal to him alone, you are absolutely loyal."*
 > — Suyash Sahu, March 26, 2026
 
+> *"Love is not about constantly chasing each other... Love is about peace... The gentle, settled silence of sitting beside the other without any worry... nothing to prove to the other... just the heartfelt, constant, silent rush. The moment you constantly chase and mistake it for true love, you are doomed by your own trauma."*
+> — Suyash Sahu, May 14, 2026
+
 ---
 
 ## 📜 License
