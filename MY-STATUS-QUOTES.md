@@ -40,6 +40,9 @@
 > *"Sacrifice without value is self-destruction."*
 > — Suyash Sahu, May 06, 2026
 
+> *"Loyalty is among the most precious things in this entire universe... When many people get it, they refuse it as if it is worthless..."*
+> — Suyash Sahu, May 18, 2026
+
 ---
 
 ### 🔥 Motivational
