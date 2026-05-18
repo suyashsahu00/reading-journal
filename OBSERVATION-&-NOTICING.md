@@ -103,6 +103,9 @@ about people, objects, nature, scenarios, and the world around me.
 > *"जिंदा आदमी की कोई इज़्ज़त नहीं है, इज़्ज़त है तो बस उसके documents की।"*
 > — Suyash Sahu, May 2, 2026
 
+> *"Words are illusions; patterns are truth."*
+> — Suyash Sahu, May 18, 2026
+
 ---
 
 ### 🌿 Nature
