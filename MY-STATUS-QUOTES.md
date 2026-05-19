@@ -73,6 +73,9 @@
 > *"If the world wants bad, give them bad; it's simple."*
 > — Suyash Sahu, May 06, 2026
 
+> *"Do you know what's more magnetic in a woman than her gorgeous body? It's her goddamn intellect!!!"*
+> — Suyash Sahu, May 19, 2026
+
 ---
 
 ### 🌪️ Reality, Unmasked
