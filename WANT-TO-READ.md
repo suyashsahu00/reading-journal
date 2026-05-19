@@ -7,6 +7,8 @@
 - [ ] 🔓 **Unscripted** by MJ DeMarco ~ Break free from the life script and build an entrepreneurial path to freedom | 🔗 [Amazon](https://www.amazon.com/Unscripted-MJ-DeMarco-audiobook/dp/B072FL3BGP)
 - [ ] ✨ **The Alchemist** by Paulo Coelho ~ "Jab tum kisi cheez ko shiddat se chahte ho, toh poori kaynat usse tumse milaane mein lag jaati hai." (When you want something, all the universe conspires in helping you to achieve it.) | Recommended by NACHIKET JOSHI (10-03-2026) 🔗 [Amazon](https://amzn.in/d/07ab43dv)
 - [X] 📖 **October Junction** by Divya Prakash Dubey | Recommended by 😊 (18-03-2026) | Completed: 02-04-2026 🔗 [Amazon](https://amzn.in/d/05vzJ1Yx)
+- [ ] 🛕 **The Hidden Hindu** by Akshat Gupta ~ A mythological sci-fi thriller exploring immortality | Recommended by Vikas Singh Thakur (13-05-2026) 🔗 [Amazon](https://www.amazon.in/Hidden-Hindu-Akshat-Gupta-ebook/dp/B09HHKNKXL)
+- [ ] 🏔️ **The Courage To Be Disliked** by Ichiro Kishimi & Fumitake Koga ~ Japanese philosophy on finding freedom, happiness, and letting go of trauma | Recommended by Shristii Shreyaa (19-05-2026) 🔗 [Amazon](https://amzn.in/d/0bJrS1l0)
 
 ---
 
