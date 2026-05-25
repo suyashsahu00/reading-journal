@@ -89,6 +89,9 @@
 > *"It is an unequal society where money has been scarce for centuries, so when you don't have actual currency, something else becomes the currency."*
 > — Suyash Sahu, May 06, 2026
 
+> *"अगर सच्चाई इतनी ही कड़वी हो तो सपनों की दुनिया में जीना और उसे ही सच्चाई मान लेने में कोई बुराई नहीं है।"*
+> — Suyash Sahu, May 25, 2026
+
 ---
 
 ### 🖤 Love
