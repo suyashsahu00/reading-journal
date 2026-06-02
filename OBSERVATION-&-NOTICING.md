@@ -139,6 +139,13 @@ about people, objects, nature, scenarios, and the world around me.
 
 ---
 
+### 📖 The Missing Manual
+
+> *"What is Masculinity? Controlled force, controlled direction, controlled aggression, and controlled domination."*
+> — Suyash Sahu, June 02, 2026
+
+---
+
 1. 📜 License
 
 [![CC BY-NC-ND 4.0](https://licensebuttons.net/l/by-nc-nd/4.0/88x31.png)](https://creativecommons.org/licenses/by-nc-nd/4.0/)
