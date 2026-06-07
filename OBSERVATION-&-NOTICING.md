@@ -144,6 +144,15 @@ about people, objects, nature, scenarios, and the world around me.
 > *"What is Masculinity? Controlled force, controlled direction, controlled aggression, and controlled domination."*
 > — Suyash Sahu, June 02, 2026
 
+> *"Quit asking for permission, even for existing "*
+> — Suyash Sahu, June 07, 2026
+
+> *"Never feel ashamed of your masculinity."*
+> — Suyash Sahu, June 07, 2026
+
+> *"Most people spend their entire lives trying to build someone else’s empire."*
+> — Suyash Sahu, June 08, 2026
+
 ---
 
 1. 📜 License
