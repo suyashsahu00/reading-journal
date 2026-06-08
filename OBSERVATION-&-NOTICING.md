@@ -153,6 +153,24 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Most people spend their entire lives trying to build someone else’s empire."*
 > — Suyash Sahu, June 08, 2026
 
+> *"You talk to survive, not to dominate the market."*
+> — Suyash Sahu, June 08, 2026
+
+> *"The fear of judgment destroyed your potential."*
+> — Suyash Sahu, June 08, 2026
+
+> *"You are programmed to chase validation."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Nobody prepared you for real pain, loneliness, depression, rejection, cheating..."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Your pain is not the enemy; your lack of preparation is the enemy."*
+> — Suyash Sahu, June 08, 2026
+
+> *"You feel stuck because you stopped moving."*
+> — Suyash Sahu, June 08, 2026
+
 ---
 
 1. 📜 License
