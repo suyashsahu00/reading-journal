@@ -171,6 +171,39 @@ about people, objects, nature, scenarios, and the world around me.
 > *"You feel stuck because you stopped moving."*
 > — Suyash Sahu, June 08, 2026
 
+> *"The three wars that every Man is fighting. Money, women and self-respect, and they are losing all three"*
+> — Suyash Sahu, June 08, 2026
+
+> *"A weak man struggles financially because his discipline is weak, and because of that he also struggles in his relationship, and since he is struggling in his relationship, his self-respect is also low."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Money is not just about cash; it is about power."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Real power comes from freedom."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Desperate energy destroys attraction more than rejection ever did."*
+> — Suyash Sahu, June 08, 2026
+
+> *"A man is supposed to conquer—conquer his life, conquer addiction, conquer weakness, conquer poverty."*
+> — Suyash Sahu, June 08, 2026
+
+> *"The biggest war is against your own mind"*
+> — Suyash Sahu, June 08, 2026
+
+> *"Modern society benefits from weak men."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Men confuse attention with respect."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Respect comes from results, not noise."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Brotherhood is dying because men betray each other."*
+> — Suyash Sahu, June 08, 2026
+
 ---
 
 1. 📜 License
