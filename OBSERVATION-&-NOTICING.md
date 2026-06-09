@@ -91,7 +91,7 @@ about people, objects, nature, scenarios, and the world around me.
 > — Suyash Sahu, April 23, 2026
 
 > *"To all those biggest hypocrite boys & girls who always say it's their destiny and never change their karma:
-> तुम्हारे पापों का कर्म तुम इसी जीवन में भोग के जाओगे। जैसा तुम्हारा कर्म, वैसी तुम्हारी नियति। जैसे तुम, वैसी तुम्हारी ज़िंदगी। जैसी इज़्ज़त तुम अपने आप को दोगे, वैसी ही इज़्ज़त दुनिया तुम्हें देगी। 
+> तुम्हारे पापों का कर्म तुम इसी जीवन में भोग के जाओगे। जैसा तुम्हारा कर्म, वैसी तुम्हारी नियति। जैसे तुम, वैसी तुम्हारी ज़िंदगी। जैसी इज़्ज़त तुम अपने आप को दोगे, वैसी ही इज़्ज़त दुनिया तुम्हें देगी।
 > तुम्हारी नियति ये तय नहीं करेगी कि तुम्हारा कर्म कैसा होगा। वो तुम्हारा कर्म तय करेगा कि तुम्हारी नियति कैसी होगी।
 > फरेब में, ढोंग में, दोगलेपन में, मक्कारी में ये दूसरों और अपने को बताना छोड़ दो कि मेरी नियति ही यही है। जबकि ये सब ढोंग करके तुम यही बता रहे हो कि तुम इसी के लायक हो।
 > तुम उसी गंदी नाली के कीड़े हो जो उसी में जी कर, उसी को हर चीज़ समझ कर, हर भोग-व्यास में पड़ कर, उसी गंदी नाली के उसी गंदे कीड़े जैसी मौत मरेगा।"*
@@ -203,6 +203,54 @@ about people, objects, nature, scenarios, and the world around me.
 
 > *"Brotherhood is dying because men betray each other."*
 > — Suyash Sahu, June 08, 2026
+
+> *"The eyes expose everything."*
+> — Suyash Sahu, June 08, 2026
+
+> *"People blink their eyes faster during stress, fear, lying, or pressure."*
+> — Suyash Sahu, June 08, 2026
+
+> *"Dead eyes and a fake smile not only denote emotional emptiness, they also denote manipulation."*
+> — Suyash Sahu, June 09, 2026
+
+> *"A person who doesn't talk about themselves much and constantly talks about others—others' dreams, others' works, others' missions—is the biggest loser, the biggest snake, and you must stay away from them."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Microexpressions last less than a second."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Disgust flashes instantly around the nose and the lips."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Fighter plane nose-down analogy: To know the real instinct of another person, diminish or destroy the most important qualities you possess—whether your nature, money, assets, or anything else—and you will discover their real intent toward you through their microsecond reactions and the nature of their talk."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Truth leaks in milliseconds. Either train yourself to catch that or be prepared to remain blind for the rest of your life."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Confident people speak slowly, whereas weak, insecure, manipulators, liars speak fast and overexplain to make it sound believable."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Watch how a person treats a lower-status or subordinate person; you will get to know their real instinct.
+>
+> A person's true character is revealed not in how they treat their superiors, but in how they treat those they believe are beneath them. How someone treats people who have no power over them is a clear window into their values."*
+> — Suyash Sahu, June 09, 2026
+
+> *"People will always test your boundaries first."*
+> — Suyash Sahu, June 09, 2026
+
+> *"People reveal their true nature through consistency."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Ego reaction exposes consistency.
+>
+> Ego reacts quickly—explaining first, defending fast, and choosing comfort over correction—while truth moves more slowly and waits for evidence. When someone's ego is triggered, their reactive response reveals whether their behaviour is consistently mature or inconsistently defensive."*
+> — Suyash Sahu, June 09, 2026
+
+> *"Time-wasters will always create confusion.
+>
+> Lack of clarity shows up as overwhelm or confusion about what your next steps are, making it a tremendous time-waster. Inefficient communication causes critical details to get lost, slowing decisions and creating confusion. Poor communication in the workplace leads to an atmosphere intense with confusion and performance problems."*
+> — Suyash Sahu, June 09, 2026
 
 ---
 
