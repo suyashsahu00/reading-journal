@@ -252,6 +252,39 @@ about people, objects, nature, scenarios, and the world around me.
 > Lack of clarity shows up as overwhelm or confusion about what your next steps are, making it a tremendous time-waster. Inefficient communication causes critical details to get lost, slowing decisions and creating confusion. Poor communication in the workplace leads to an atmosphere intense with confusion and performance problems."*
 > — Suyash Sahu, June 09, 2026
 
+> *"A real man is not what he says. A real man is what remains after he has been punched in the face."*
+> — Suyash Sahu, June 12, 2026
+
+> *"Strength is not dominance. Strength is control."*
+> — Suyash Sahu, June 12, 2026
+
+> *"A man without purpose will always remain somebody else’s tool."*
+> — Suyash Sahu, June 12, 2026
+
+> *"Attention doesn’t mean respect."*
+> — Suyash Sahu, June 12, 2026
+
+> *"You should work on having one fixed identity."*
+> — Suyash Sahu, June 12, 2026
+
+> *"Masculinity begins with responsibility."*
+> — Suyash Sahu, June 12, 2026
+
+> *"Women don't create weak men. It's weak men who create weak men."*
+> — Suyash Sahu, June 12, 2026
+
+> *"Real confidence comes with competence."*
+> — Suyash Sahu, June 12, 2026
+
+> *"The definition of a real man is a man who is willing to stand alone when the situation demands."*
+> — Suyash Sahu, June 12, 2026
+
+> *"Be a man who has a mission bigger than his comfort."*
+> — Suyash Sahu, June 12, 2026
+
+> *"Be a man who keeps his word even when nobody is watching."*
+> — Suyash Sahu, June 12, 2026
+
 ---
 
 1. 📜 License
