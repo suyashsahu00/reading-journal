@@ -285,6 +285,12 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Be a man who keeps his word even when nobody is watching."*
 > — Suyash Sahu, June 12, 2026
 
+> *"Your legacy is the only thing that's going to outlast you even after your death. Legacy is not in terms of how many people are talking about you; legacy is in terms of how many lives you have changed."*
+> — Suyash Sahu, June 13, 2026
+
+> *"You need someone who is there for you, someone who is right there with you, who wants to stay with you not because of your qualities, wealth, or materialistic things you provide, but because they are meant to and genuinely want to stay with you, because they want you, not your qualities."*
+> — Suyash Sahu, June 13, 2026
+
 ---
 
 1. 📜 License
