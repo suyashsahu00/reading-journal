@@ -291,6 +291,87 @@ about people, objects, nature, scenarios, and the world around me.
 > *"You need someone who is there for you, someone who is right there with you, who wants to stay with you not because of your qualities, wealth, or materialistic things you provide, but because they are meant to and genuinely want to stay with you, because they want you, not your qualities."*
 > — Suyash Sahu, June 13, 2026
 
+> *"Saving is not wealth."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Money sitting for you is actually not working for you. It is sleeping."*
+> — Suyash Sahu, June 13, 2026
+
+> *"A job is not security."*
+> — Suyash Sahu, June 13, 2026
+
+> *"High income doesn't mean you're rich. High income doesn't have any relationship with wealth."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Buying a house does not mean that you are rich."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Education does not guarantee financial freedom."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Hard work alone does not create wealth."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Debt is not always bad."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Investing is not gambling."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Time is more valuable than money."*
+> — Suyash Sahu, June 13, 2026
+
+> *"The biggest myth is that I have time."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Women respond to self-respect, not neediness."*
+> — Suyash Sahu, June 13, 2026
+
+> *"A man who walks away always has more power than a man who begs to stay."*
+> — Suyash Sahu, June 13, 2026
+
+> *"A cheater will always be a cheater, no matter whether that person is an emotional or logical manipulator."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Women can never respect a man who does not respect himself."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Women respond to emotional control."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Women respond to purpose."*
+> — Suyash Sahu, June 13, 2026
+
+> *"If you want to be extraordinary, wake up before the world does."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Decide the agenda for the work you have to do today."*
+> — Suyash Sahu, June 13, 2026
+
+> *"If your day starts with consumption, your life will end up in mediocrity."*
+> — Suyash Sahu, June 13, 2026
+
+> *"One hour of skill practice before you do anything else."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Focus on one performance at a time."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Control your information diet."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Afternoons are for execution: build, sell, solve."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Protect your energy from useless people."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Evenings should be reserved for reflection and planning."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Sleep like a professional."*
+> — Suyash Sahu, June 13, 2026
+
 ---
 
 1. 📜 License
