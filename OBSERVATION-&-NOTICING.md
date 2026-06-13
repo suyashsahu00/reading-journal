@@ -372,6 +372,33 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Sleep like a professional."*
 > — Suyash Sahu, June 13, 2026
 
+> *"The man who controls the frame controls the interaction."*
+> — Suyash Sahu, June 13, 2026
+
+> *"The fastest way to lose your status is to surrender."*
+> — Suyash Sahu, June 13, 2026
+
+> *"The more you justify yourself, the smaller you appear."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Ask questions. 🧡"*
+> — Suyash Sahu, June 13, 2026
+
+> *"I let it pass once, but I am not going to let it pass the next time round."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Do not match their chaos."*
+> — Suyash Sahu, June 13, 2026
+
+> *"Learn the power of walking away. 🧡"*
+> — Suyash Sahu, June 13, 2026
+
+> *"Your body language speaks before your mouth."*
+> — Suyash Sahu, June 13, 2026
+
+> *"In the end, if nothing works, you have to speak the language they understand and hit it down — that person will be the last step in this."*
+> — Suyash Sahu, June 13, 2026
+
 ---
 
 1. 📜 License
