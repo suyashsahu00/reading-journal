@@ -399,6 +399,29 @@ about people, objects, nature, scenarios, and the world around me.
 > *"In the end, if nothing works, you have to speak the language they understand and hit it down — that person will be the last step in this."*
 > — Suyash Sahu, June 13, 2026
 
+### Get Fit Link
+
+> *"Running Destroys Excuses"*
+> — Suyash Sahu, June 14, 2026
+
+> *"Your body itself is a gym if you stop acting helpless."*
+> — Suyash Sahu, June 14, 2026
+
+> *"Protein Is Non Negotiable"*
+> — Suyash Sahu, June 14, 2026
+
+> *"Stop Drinking Your Calories"*
+> — Suyash Sahu, June 14, 2026
+
+> *"Sleep Is The Most Lethal Performance Drug"*
+> — Suyash Sahu, June 15, 2026
+
+> *"Body Weight Training Builds Real World Strength"*
+> — Suyash Sahu, June 15, 2026
+
+> *"Consistency Builds Intensity"*
+> — Suyash Sahu, June 15, 2026
+
 ---
 
 1. 📜 License
