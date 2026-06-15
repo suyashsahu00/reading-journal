@@ -422,6 +422,18 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Consistency Builds Intensity"*
 > — Suyash Sahu, June 15, 2026
 
+> *"Stop Waiting For Perfect Conditions"*
+> — Suyash Sahu, June 15, 2026
+
+> *"Sunlight Is Free Medicine"*
+> — Suyash Sahu, June 15, 2026
+
+> *"Stop Snacking Out of Boredom"*
+> — Suyash Sahu, June 15, 2026
+
+> *"Stop Using Age As An Excuse"*
+> — Suyash Sahu, June 15, 2026
+
 ---
 
 1. 📜 License
