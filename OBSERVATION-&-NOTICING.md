@@ -434,6 +434,27 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Stop Using Age As An Excuse"*
 > — Suyash Sahu, June 15, 2026
 
+> *"Track Your Progress"*
+> — Suyash Sahu, June 16, 2026
+
+> *"Remove The Fitness Industry Mindset"*
+> — Suyash Sahu, June 16, 2026
+
+> *"Train Your Mind Along With Your Body"*
+> — Suyash Sahu, June 16, 2026
+
+> *"Environment Shapes Results"*
+> — Suyash Sahu, June 16, 2026
+
+> *"Fitness Is A Lifelong Commitment"*
+> — Suyash Sahu, June 16, 2026
+
+> *"Most important supplements: fish oil (company: Swisse), magnesium glycinate (preferred: Welbing, or whichever is available earliest).
+> Not compulsory: glycine, vitamin D3 (uplifted D3) — take it for around 6 weeks and stop for around 2–3 months. Take vitamin D: 1 capsule once a week, and take it in cycles (take for 2–3 months, then leave it for 2–3 months). Ashwagandha (for mental calmness).
+> 
+> If you are on a carnivorous diet and cannot adjust during the initial period, take Dadur Nature Care Hisab Ghoal Double Action (it is only for the starting period if you are having stomach pain on a carnivorous diet)."*
+> — Suyash Sahu, June 16, 2026
+
 ---
 
 1. 📜 License
