@@ -137,6 +137,9 @@ about people, objects, nature, scenarios, and the world around me.
 > I would even say, choose above your current standard if possible; you will definitely feel better in life."*
 > — Suyash Sahu, April 23, 2026
 
+> *"When you understand Gen Z is one of the worst generations in this entire generation history, either you will say, "What the heck, yaar, I belong to this generation," or you will thank God, "Thanks for letting me know these cheap souls."*
+> — Suyash Sahu, June 19, 2026
+
 ---
 
 ### 📖 The Missing Manual
