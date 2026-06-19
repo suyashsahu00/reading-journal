@@ -33,6 +33,14 @@ I use this to:
 > *"बंधन में बँधना सब को है... पर शायद सच में, कोई किसी का साथ नहीं देना चाहता। क्या बंधन में बँधना ज़्यादा ज़रूरी है, या साथ देना? उस बंधन का क्या करोगे, जिसमें साथ ही न हो? और अगर साथ हो — हमेशा का — तो क्या बंधन की ज़रूरत है?"*
 > — Suyash Sahu, May 03, 2026
 
+### 🎭 The Façade of Choosing the Good
+> *"I think that, at present, most men and women have gained enough knowledge to distinguish between good and bad. But if they still choose what is bad, and fake it as if they want what is good while still selecting the bad option, then either they are in an ultra‑hyper‑unrealistic hope that they can change the bad into good, or they are attracted to the bad, or they do not actually want stability.
+> 
+> Doing this kind of thing, it is good that they accept themselves, but faking it as if they are choosing the good one is the most hypocritical thing a human can do.
+> 
+> I am still curious. This is my main question: why? If people are going to choose the bad one, then why be such hypocrites? Are they afraid of society’s judgment? Are they afraid of what their relationship will become with the other person who can clearly see and witness what is good and bad? Or is it about something else that I am not yet able to think of?"*
+> — Suyash Sahu, June 19, 2026
+
 ---
 
 ## 📜 License
