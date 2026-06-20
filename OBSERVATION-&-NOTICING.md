@@ -106,6 +106,20 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Words are illusions; patterns are truth."*
 > — Suyash Sahu, May 18, 2026
 
+> *"You don't have to dim your light to attract a man.
+
+Just don't forget to let him feel seen in your glow."*
+> — Suyash Sahu, June 20, 2026
+
+> *"even the strongest guy needs to feel safe..."*
+> — Suyash Sahu, June 20, 2026
+
+> *"Nobody treats you better than a girl you don't want"*
+> — Suyash Sahu, June 20, 2026
+
+> *"Nothing is worse, than a man with nothing to lose, but something to gain"*
+> — Suyash Sahu, June 20, 2026
+
 ---
 
 ### 🌿 Nature
@@ -454,9 +468,40 @@ about people, objects, nature, scenarios, and the world around me.
 
 > *"Most important supplements: fish oil (company: Swisse), magnesium glycinate (preferred: Welbing, or whichever is available earliest).
 > Not compulsory: glycine, vitamin D3 (uplifted D3) — take it for around 6 weeks and stop for around 2–3 months. Take vitamin D: 1 capsule once a week, and take it in cycles (take for 2–3 months, then leave it for 2–3 months). Ashwagandha (for mental calmness).
-> 
+>
 > If you are on a carnivorous diet and cannot adjust during the initial period, take Dadur Nature Care Hisab Ghoal Double Action (it is only for the starting period if you are having stomach pain on a carnivorous diet)."*
 > — Suyash Sahu, June 16, 2026
+
+---
+
+### 🚀 Escape The Middle Class
+
+> *"Money is not the first requirement. Aggression, execution, and consistency are"*
+> — Suyash Sahu, June 20, 2026
+
+> *"Leverage The Internet"*
+> — Suyash Sahu, June 20, 2026
+
+> *"Your phone and PC are already business weapons."*
+> — Suyash Sahu, June 20, 2026
+
+> *"Money is not the requirement to start a business. Aggression, consistency, and clarity are the prime requisites."*
+> — Suyash Sahu, June 20, 2026
+
+> *"Service businesses scale faster when you have no capital."*
+> — Suyash Sahu, June 20, 2026
+
+> *"Find out the desperate need around you."*
+> — Suyash Sahu, June 20, 2026
+
+> *"Give people what they desperately need; it does not matter how good or bad it is, how pure or creepy it is. Just find it and give it to them."*
+> — Suyash Sahu, June 20, 2026
+
+> *"Social Media Is The New Battlefield"*
+> — Suyash Sahu, June 20, 2026
+
+> *"If People Don't Know You Exist Then Your Talent Is Wasted"*
+> — Suyash Sahu, June 20, 2026
 
 ---
 
