@@ -120,6 +120,9 @@ Just don't forget to let him feel seen in your glow."*
 > *"Nothing is worse, than a man with nothing to lose, but something to gain"*
 > — Suyash Sahu, June 20, 2026
 
+> *"Many girls use “okay” more often than “ok” most of the time, and I am still confused why. When both “ok” and “okay” have the same meaning, why are they spending those extra 2 seconds writing “okay” instead of “ok”?"*
+> — Suyash Sahu, June 20, 2026
+
 ---
 
 ### 🌿 Nature
