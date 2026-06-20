@@ -69,7 +69,7 @@
 > _"In the end, what matters? Results!!!"_
 > — Suyash Sahu, March 17, 2026
 
-> _"The red dress 👗 looks gorgeous, yaar! 🥵"_
+> _"The red dress 👗 looks absolutely gorgeous, yaar! 🥵"_
 > — Suyash Sahu, March 18, 2026
 
 > _"This is the day I prayed for someone — I don't know whether it has been months or years since I last prayed for anyone else, but today is the day I prayed for her 💚 to Durga Mata."_
