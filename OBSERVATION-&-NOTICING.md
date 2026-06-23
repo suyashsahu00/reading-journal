@@ -506,6 +506,27 @@ Just don't forget to let him feel seen in your glow."*
 > *"If People Don't Know You Exist Then Your Talent Is Wasted"*
 > — Suyash Sahu, June 20, 2026
 
+> *"The Middle Class Waste Their Money To Look Rich"*
+> — Suyash Sahu, June 23, 2026
+
+> *"Learn Sales Or Stay Broke Forever"*
+> — Suyash Sahu, June 23, 2026
+
+> *"Discipline beats motivation every single day."*
+> — Suyash Sahu, June 23, 2026
+
+> *"Your Circle Decides Your Financial Ceiling"*
+> — Suyash Sahu, June 23, 2026
+
+> *"Multiple Income Streams Build Power"*
+> — Suyash Sahu, June 23, 2026
+
+> *"Execution Beats Intelligence And Marks Anyday"*
+> — Suyash Sahu, June 23, 2026
+
+> *"Freedom is the real goal."*
+> — Suyash Sahu, June 23, 2026
+
 ---
 
 1. 📜 License
