@@ -123,6 +123,13 @@ Just don't forget to let him feel seen in your glow."*
 > *"Many girls use “okay” more often than “ok” most of the time, and I am still confused why. When both “ok” and “okay” have the same meaning, why are they spending those extra 2 seconds writing “okay” instead of “ok”?"*
 > — Suyash Sahu, June 20, 2026
 
+> *"Nothing kills attraction more than predictable obsession."*
+> — Suyash Sahu, June 24, 2026
+
+> *"My Style Is Cocky And Funny.
+> I might allow you to treat me to coffee, but wait—don’t get so happy. That’s only if you behave nicely with me, only then; otherwise, I might take back that opportunity."*
+> — Suyash Sahu, June 24, 2026
+
 ---
 
 ### 🌿 Nature
@@ -419,7 +426,7 @@ Just don't forget to let him feel seen in your glow."*
 > *"In the end, if nothing works, you have to speak the language they understand and hit it down — that person will be the last step in this."*
 > — Suyash Sahu, June 13, 2026
 
-### Get Fit Link
+### 🏋️ Get Fit Link
 
 > *"Running Destroys Excuses"*
 > — Suyash Sahu, June 14, 2026
@@ -526,6 +533,164 @@ Just don't forget to let him feel seen in your glow."*
 
 > *"Freedom is the real goal."*
 > — Suyash Sahu, June 23, 2026
+
+---
+
+## 🧠 The Dark Psychology
+
+> *"Most Women Make Decisions Emotionally First, Logic Justifies It Later"*
+> — Suyash Sahu, June 24, 2026
+
+### 💡 Women Respond To Emotions More Than Logic
+
+> *"Women Respond To Emotions More Than Logic"*
+> — Suyash Sahu, June 24, 2026
+
+- Women are primarily driven by emotion; logic is used after the decision is already made — it justifies, not drives.
+- Connect emotionally first. Logic alone rarely moves them.
+
+---
+
+> *"Most Women Make Decisions Emotionally First, Logic Justifies It Later"*
+> — Suyash Sahu, June 24, 2026
+
+- The emotional decision happens in a split second. The logical explanation is built afterward to make it sound rational.
+
+---
+
+> *"What She Says And What She Responds To Are Often Different"*
+> — Suyash Sahu, June 24, 2026
+
+> *"You must never listen to their words — you must only see their action"*
+> — Suyash Sahu, June 24, 2026
+
+- Words are conscious. Reactions are subconscious.
+- Actions are the only honest data — watch them closely, not what is spoken.
+
+---
+
+> *"Write down at least 5 patterns that the other person possesses; you will get to know a lot about them."*
+> — Suyash Sahu, June 24, 2026
+
+**Suggested 5 patterns to watch for:**
+1. How she reacts under pressure or stress
+2. What she does when she wants something vs. when she doesn't
+3. How she treats people below her in social hierarchy
+4. Her behaviour when another attractive person enters the room
+5. How she responds when you pull back your attention
+
+Patterns never lie. Repeated behaviour is character.
+
+---
+
+> *"She Hunts Status The First Thing Though She Calls It Irrelevant"*
+> — Suyash Sahu, June 24, 2026
+
+> *"Women are mostly hypergamous by nature."*
+> — Suyash Sahu, June 24, 2026
+
+- **Hypergamy** = the tendency to seek mates of equal or higher social, financial, and status standing.
+- She may consciously deny this, but her unconscious choices consistently reveal it.
+- Don't argue about this — just be the man worth choosing.
+
+---
+
+> *"Attention Is Female Currency"*
+> — Suyash Sahu, June 24, 2026
+
+- For men, money is a primary resource. For women, attention holds equivalent psychological value.
+- When you give attention too freely, you devalue it — just like printing too much money causes inflation.
+- **Scarcity creates value.** Withdraw strategically.
+
+---
+
+> *"Attraction Is Not Fair Or Democratic"*
+> — Suyash Sahu, June 24, 2026
+
+> *"Attraction is not fair; attraction is completely emotional for a woman."*
+> — Suyash Sahu, June 24, 2026
+
+- Attraction does not follow rules of equality, effort, or niceness.
+- A woman does not choose attraction consciously — it is felt, not decided.
+- You cannot negotiate or logically convince someone into being attracted to you.
+
+---
+
+> *"Women Test Men Constantly"*
+> — Suyash Sahu, June 24, 2026
+
+> *"Neediness destroys attraction."*
+> — Suyash Sahu, June 24, 2026
+
+- Tests are not always conscious — they are an instinctive screening mechanism.
+- A woman tests to check if your confidence is real or performed.
+- The most common tests come in your most vulnerable moments.
+
+---
+
+> *"Women Watch Behaviour More Than Words."*
+> — Suyash Sahu, June 24, 2026
+
+> *"Women Watch Your Actions Not Words"*
+> — Suyash Sahu, June 24, 2026
+
+- What you say is filtered. What you do consistently is believed.
+- Stop trying to convince her with words. Let your behaviour be your argument.
+
+---
+
+> *"Most common shit test from women: when you are in a vulnerable moment.*
+>
+> *For example, you are in your car and climbing a hill. There is a slope behind you, and somehow your car gets stuck or is unable to make it to the top. At that time, she may say things under pressure like, 'Do something, there is a loud noise coming from behind,' or 'This is happening, that is happening.'*
+>
+> *They are not doing that consciously; they have this as an inherent trait in them."*
+> — Suyash Sahu, June 24, 2026
+
+- This is not cruelty — it is an unconscious, inherent screening mechanism.
+- The man who stays calm and decisive **passes**. The man who panics or seeks reassurance **fails**.
+- **The rule:** Never become needy, defensive, or emotionally reactive during a test. Hold frame.
+
+---
+
+> *"EASY VALIDATION LOSES ITS VALUE"*
+> — Suyash Sahu, June 24, 2026
+
+- Humans value what they work for. Give your approval selectively — only when genuinely earned.
+- If she gets your validation without effort, it becomes worthless.
+
+---
+
+> *"Female Choice Drives The Dating Market"*
+> — Suyash Sahu, June 24, 2026
+
+> *"Women decide who gets access, not you."*
+> — Suyash Sahu, June 24, 2026
+
+- Women are the selectors. Men are selected.
+- The right response is not resentment — it is becoming someone worth selecting.
+- Build yourself: purpose, health, finances, skills, and presence.
+
+---
+
+> *"The Biggest Mistake Men Make:*
+>
+> *The biggest mistake men make: your purpose must come first, not women. Your purpose should be on top, then health, then finances, then your parents, skills, passion, and finally women."*
+> — Suyash Sahu, June 24, 2026
+
+**The correct priority hierarchy:**
+
+| Priority | Area |
+|----------|------|
+| 🥇 1st | **Your Purpose / Mission** |
+| 🥈 2nd | **Health** |
+| 🥉 3rd | **Finances** |
+| 4th | **Your Parents** |
+| 5th | **Skills & Passion** |
+| 6th | **Women** |
+
+- Men who put women at the top become unattractive to the very women they chase.
+- A man with purpose is magnetic. A man who orbits women is repulsive.
+- Women are a **reward** of a well-built life, not the foundation of it.
 
 ---
 
