@@ -41,6 +41,10 @@ I use this to:
 > I am still curious. This is my main question: why? If people are going to choose the bad one, then why be such hypocrites? Are they afraid of society’s judgment? Are they afraid of what their relationship will become with the other person who can clearly see and witness what is good and bad? Or is it about something else that I am not yet able to think of?"*
 > — Suyash Sahu, June 19, 2026
 
+### 🍂 [Letting Go of the Ultimate Desire](https://youtu.be/CD4k4g36Q4k?si=iVy26HtVnGSo0RP0)
+> *"How it feels when you let go of the one thing you wanted the most?"*
+> — Suyash Sahu, June 29, 2026
+
 ---
 
 ## 📜 License
