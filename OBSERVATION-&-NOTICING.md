@@ -130,6 +130,11 @@ Just don't forget to let him feel seen in your glow."*
 > I might allow you to treat me to coffee, but wait—don’t get so happy. That’s only if you behave nicely with me, only then; otherwise, I might take back that opportunity."*
 > — Suyash Sahu, June 24, 2026
 
+> *"Desire turns off a man’s rationality; it makes him do things that literally make no sense, and that is actually the signal to look for.
+>
+> Men are wired to place an extraordinarily high value on access to women, not because of how women look but because of what women make them feel—things they genuinely cannot create for themselves. When a man desires a woman, her approval makes him feel powerful, chosen, and significant in ways that almost nothing else can. If he is feeling unseen or unsuccessful in other areas of his life, female desire often becomes the antidote."*
+> — Suyash Sahu, July 06, 2026
+
 ---
 
 ### 🌿 Nature
