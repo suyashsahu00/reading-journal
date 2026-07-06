@@ -132,7 +132,9 @@ Just don't forget to let him feel seen in your glow."*
 
 > *"Desire turns off a man’s rationality; it makes him do things that literally make no sense, and that is actually the signal to look for.
 >
-> Men are wired to place an extraordinarily high value on access to women, not because of how women look but because of what women make them feel—things they genuinely cannot create for themselves. When a man desires a woman, her approval makes him feel powerful, chosen, and significant in ways that almost nothing else can. If he is feeling unseen or unsuccessful in other areas of his life, female desire often becomes the antidote."*
+> Men are wired to place an extraordinarily high value on access to women, not because of how women look but because of what women make them feel—things they genuinely cannot create for themselves. When a man desires a woman, her approval makes him feel powerful, chosen, and significant in ways that almost nothing else can. If he is feeling unseen or unsuccessful in other areas of his life, female desire often becomes the antidote.
+>
+> I was at the gym, and there was around an 18-year-old girl (quite shy and hardly used to getting attention or anything like that in the gym from most men around). In the gym, there was a man around 35 or 40 maybe; he seemed successful and like the kind of person you look at and think he has himself together. But one day, in the middle of the gym floor, he walked over to that girl and stroked the back of her head like she was a little kid, and told her how beautiful she is, in public, just like that. I was standing there, completely stunned and unable to make sense of what I was seeing. So that’s why I have written this."*
 > — Suyash Sahu, July 06, 2026
 
 ---
