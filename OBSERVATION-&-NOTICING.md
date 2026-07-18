@@ -144,7 +144,8 @@ Just don't forget to let him feel seen in your glow."*
 
 ### 🌿 Nature
 
-> *(No entries yet — add your first observation!)*
+> *"When you show the sky to a trapped, big, magnificent, maleficent blue butterfly, the first thing she tries to do is relearn flying."*
+> — Suyash Sahu, July 18, 2026
 
 ---
 
