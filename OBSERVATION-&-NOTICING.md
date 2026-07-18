@@ -137,6 +137,9 @@ Just don't forget to let him feel seen in your glow."*
 > I was at the gym, and there was around an 18-year-old girl (quite shy and hardly used to getting attention or anything like that in the gym from most men around). In the gym, there was a man around 35 or 40 maybe; he seemed successful and like the kind of person you look at and think he has himself together. But one day, in the middle of the gym floor, he walked over to that girl and stroked the back of her head like she was a little kid, and told her how beautiful she is, in public, just like that. I was standing there, completely stunned and unable to make sense of what I was seeing. So that’s why I have written this."*
 > — Suyash Sahu, July 06, 2026
 
+> *"No one is busy in this world; it's just a matter of whether you are on their priority list or not."*
+> — Suyash Sahu, July 18, 2026
+
 ---
 
 ### 🌿 Nature
