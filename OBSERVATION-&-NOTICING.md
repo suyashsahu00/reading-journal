@@ -175,6 +175,9 @@ Just don't forget to let him feel seen in your glow."*
 > *"When you understand Gen Z is one of the worst generations in this entire generation history, either you will say, "What the heck, yaar, I belong to this generation," or you will thank God, "Thanks for letting me know these cheap souls."*
 > — Suyash Sahu, June 19, 2026
 
+> *"Music is not just music; it is a way to escape the reality you don’t want to live in."*
+> — Suyash Sahu, July 19, 2026
+
 ---
 
 ### 📖 The Missing Manual
