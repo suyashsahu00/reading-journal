@@ -106,9 +106,8 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Words are illusions; patterns are truth."*
 > — Suyash Sahu, May 18, 2026
 
-> *"You don't have to dim your light to attract a man.
+> *"You don't have to dim your light to attract a man. Just don't forget to let him feel seen in your glow."*
 
-Just don't forget to let him feel seen in your glow."*
 > — Suyash Sahu, June 20, 2026
 
 > *"even the strongest guy needs to feel safe..."*
@@ -590,6 +589,7 @@ Just don't forget to let him feel seen in your glow."*
 > — Suyash Sahu, June 24, 2026
 
 **Suggested 5 patterns to watch for:**
+
 1. How she reacts under pressure or stress
 2. What she does when she wants something vs. when she doesn't
 3. How she treats people below her in social hierarchy
@@ -696,14 +696,14 @@ Patterns never lie. Repeated behaviour is character.
 
 **The correct priority hierarchy:**
 
-| Priority | Area |
-|----------|------|
-| 🥇 1st | **Your Purpose / Mission** |
-| 🥈 2nd | **Health** |
-| 🥉 3rd | **Finances** |
-| 4th | **Your Parents** |
-| 5th | **Skills & Passion** |
-| 6th | **Women** |
+| Priority | Area                             |
+| -------- | -------------------------------- |
+| 🥇 1st   | **Your Purpose / Mission** |
+| 🥈 2nd   | **Health**                 |
+| 🥉 3rd   | **Finances**               |
+| 4th      | **Your Parents**           |
+| 5th      | **Skills & Passion**       |
+| 6th      | **Women**                  |
 
 - Men who put women at the top become unattractive to the very women they chase.
 - A man with purpose is magnetic. A man who orbits women is repulsive.
