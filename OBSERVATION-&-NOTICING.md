@@ -147,6 +147,12 @@ about people, objects, nature, scenarios, and the world around me.
 > *From my personal experience, I can say this."*
 > — Suyash Sahu, July 23, 2026
 
+> *"Relationships are all about loyalty; if you can't give that, don't hypocritically call it love — it's lust."*
+> — Suyash Sahu, July 25, 2026
+
+> *"The world is ready to become submissive if you have the power to become dominant."*
+> — Suyash Sahu, July 29, 2026
+
 ---
 
 ### 🌿 Nature

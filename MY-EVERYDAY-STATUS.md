@@ -127,6 +127,16 @@
 > _"My pattern ends now!!! 🤍💎"_
 > — Suyash Sahu, May 2, 2026
 
+> _"The Last lesson:_
+> _Suyash, Last time na?_
+> _Hn, last time._
+> _Gems "JID"_
+> _💙💚_
+> _The era has ended in each day of June._
+> _On the day of the strawberry moon, I have to leave my strawberry moon._
+> _हर आदमी में एक औरत और हर औरत में एक आदमी होता है। हर आदमी अपने अंदर की अधूरी औरत को जिंदगी भर बाहर ढूँढ़ता रहता है लेकिन वो औरत बड़ी मुश्किल से मिलती है। वैसे ही हर औरत अपने अंदर का अधूरा आदमी ढूँढ़ती रहती है लेकिन वो अधूरा आदमी बड़ी मुश्किल से मिलता है। और कई बार वो अधूरा मिलता ही नहीं।"_
+> — Suyash Sahu, June 30, 2026
+
 > _"My childhood was not like a normal kid's. That made me an INTJ and more mature than most people around the globe during my childhood. Even with that much maturity, that much caring, and that much understanding, I can read people just by looking into their eyes. They pause; their time between chats is a lot. And God is definitely going to give me my childhood back—He has to!!!"_
 > — Suyash Sahu, July 23, 2026
 

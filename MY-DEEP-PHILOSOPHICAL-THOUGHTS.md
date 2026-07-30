@@ -36,6 +36,12 @@
 > *"Do you know what finally happens when air accepts the water? They both create a storm!!!"*
 > — Suyash Sahu, May 15, 2026
 
+> *"The biggest bondage is freedom."*
+> — Suyash Sahu, July 25, 2026
+
+> *"The loveliest bondage is the bondage of air."*
+> — Suyash Sahu, July 25, 2026
+
 ---
 
 ### ⏳ Time & Change
