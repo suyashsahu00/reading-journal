@@ -142,6 +142,9 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Most humans are pathetic."*
 > — Suyash Sahu, July 19, 2026
 
+> *"A woman's fierce, loyal obsession with genuine connection, and a man's fierce obsession with his genuine goal, make both of them devoted"*
+> — Suyash Sahu, July 19, 2026
+
 > *"Do you know what your hairstyle can reveal about your life? A lot: hate, love, lust, frustration, hypocrisy, and more.*
 >
 > *From my personal experience, I can say this."*
@@ -157,12 +160,28 @@ about people, objects, nature, scenarios, and the world around me.
 > *"The world is ready to become submissive if you have the power to become dominant."*
 > — Suyash Sahu, July 29, 2026
 
+> *"Nothing kills attraction faster than someone trying too hard to keep a conversation alive. If someone gives you 25% effort and you respond with 200%, it does not read as confidence; it reads as desperation. The more you chase, the less attractive you become. At first, curiosity is attractive, but there comes a point where you have to pay attention to whether the other person is actually meeting you halfway. If you are asking thoughtful questions and the other person is only giving one-word answers and barely participating, the dynamic shifts; you're no longer building a conversation together, you are chasing it forward by yourself."*
+> — Suyash Sahu, July 31, 2026
+
 ---
 
 ### 🌿 Nature
 
 > *"When you show the sky to a trapped, big, magnificent, maleficent blue butterfly, the first thing she tries to do is relearn flying."*
 > — Suyash Sahu, July 18, 2026
+
+> *"Nature doesn’t care whether you are good or bad...
+> It doesn’t care whether you are beautiful or ugly...
+> It doesn’t care whether you are genuine or casual...
+> It doesn’t care whether you are loyal or a cheater...
+> It doesn’t care whether you are successful or not...
+> It just cares whether you are weak or strong...
+> It just cares whether you are dominant or recessive...
+> It knows how to eradicate the weak and recessive...
+> and
+> It is definitely going to...
+> Use your brain, power, and different tactics to escape its eradication."*
+> — Suyash Sahu, July 31, 2026
 
 ---
 
