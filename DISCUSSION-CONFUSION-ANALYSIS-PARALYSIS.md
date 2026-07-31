@@ -45,6 +45,10 @@ I use this to:
 > *"How it feels when you let go of the one thing you wanted the most?"*
 > — Suyash Sahu, June 29, 2026
 
+### 🛡️ Is Society Designed to Destroy Strong Men?
+> *"Our society is designed to destroy strong men? Maybe the answer lies in "Yes""*
+> — Suyash Sahu, July 10, 2026
+
 ### 🍽️ The Value of Unrecorded Presence
 > *"Is the most valuable thing in the world simply a quiet dinner with a person who isn't recording the conversation?"*
 > — Suyash Sahu, July 11, 2026
