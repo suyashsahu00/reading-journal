@@ -5,7 +5,7 @@ A chronicle of pages turned, worlds explored, and minds expanded.
 **Total books read:** 8  
 **Re-reads:** 0  
 **Favorites:** 1  
-**Currently reading:** Have We Met & Hands-On Machine Learning with Scikit-Learn, Keras, and TensorFlow
+**Currently reading:** Have We Met & Hands-On Machine Learning with Scikit-Learn, Keras, and TensorFlow & Musafir Café
 
 - 🎧 = audiobook  
 - 🔁 = re-read  
@@ -17,9 +17,9 @@ A chronicle of pages turned, worlds explored, and minds expanded.
 
 ## 2026
 
-1. 🖤📖 **Have We Met?** by Joyeeta Biswas ~ SMILES, LOOKS AND TOUCHES DON'T MATTER, IT IS
-THE AFFECTION FOR EACH OTHER THAT MATTERS. | 🔗 [Amazon](https://amzn.in/d/0fiL1DXv)
+1. 🖤📖 **Have We Met?** by Joyeeta Biswas ~ SMILES, LOOKS AND TOUCHES DON'T MATTER, IT IS THE AFFECTION FOR EACH OTHER THAT MATTERS. | 🔗 [Amazon](https://amzn.in/d/0fiL1DXv)
 2. ⛵ **October Junction** by Divya Prakash Dubey ~ हमारी दो जिंदगियाँ होती हैं, एक जो हम हर दिन जीते हैं दूसरी जो हम हर दिन जीना चाहते हैं, उस दूसरी जिंदगी के नाम। | 🔗 [Amazon](https://amzn.in/d/05vzJ1Yx)
+3. 📖 **Musafir Café** by Divya Prakash Dubey ~ हमारे सब जवाब हमारे पास खुद हैं, ये बात समझने के लिए अपने हिस्से भर की दुनिया भटकनी पड़ती ही है। बिना भटके मिली हुई मंज़िलें और जवाब दोनों ही नकली होते हैं। वैसे भी ज़िंदगी की मंज़िल भटकना है कहीं पहुँचना नहीं। | 🔗 [Amazon](https://amzn.in/d/08bSf8MB)
 
 ---
 
@@ -49,4 +49,4 @@ THE AFFECTION FOR EACH OTHER THAT MATTERS. | 🔗 [Amazon](https://amzn.in/d/0fi
 
 Always open to book recommendations! 📬 See [CONTRIBUTING.md](CONTRIBUTING.md) for guidelines on submitting a PR.
 
-*Last updated: April 2026*
+*Last updated: August 2026*

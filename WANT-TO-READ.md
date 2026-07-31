@@ -9,6 +9,7 @@
 - [X] 📖 **October Junction** by Divya Prakash Dubey | Recommended by 😊 (18-03-2026) | Completed: 02-04-2026 🔗 [Amazon](https://amzn.in/d/05vzJ1Yx)
 - [ ] 🛕 **The Hidden Hindu** by Akshat Gupta ~ A mythological sci-fi thriller exploring immortality | Recommended by Vikas Singh Thakur (13-05-2026) 🔗 [Amazon](https://www.amazon.in/Hidden-Hindu-Akshat-Gupta-ebook/dp/B09HHKNKXL)
 - [ ] 🏔️ **The Courage To Be Disliked** by Ichiro Kishimi & Fumitake Koga ~ Japanese philosophy on finding freedom, happiness, and letting go of trauma | Recommended by Shristii Shreyaa (19-05-2026) 🔗 [Amazon](https://amzn.in/d/0bJrS1l0)
+- [ ] ☕ **Musafir Café** by Divya Prakash Dubey ~ "हमारे सब जवाब हमारे पास खुद हैं, ये बात समझने के लिए अपने हिस्से भर की दुनिया भटकनी पड़ती ही है। बिना भटके मिली हुई मंज़िलें और जवाब दोनों ही नकली होते हैं। वैसे भी ज़िंदगी की मंज़िल भटकना है कहीं पहुँचना नहीं।" | Recommended by 😊 (29-07-2026) 🔗 [Amazon](https://amzn.in/d/08bSf8MB)
 
 ---
 
