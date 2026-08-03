@@ -53,6 +53,10 @@ I use this to:
 > *"Is the most valuable thing in the world simply a quiet dinner with a person who isn't recording the conversation?"*
 > — Suyash Sahu, July 11, 2026
 
+### 🌌 The Cosmos Within
+> *"The whole cosmos is within you, and you are trying to find the cosmos in others?"*
+> — Suyash Sahu, August 03, 2026
+
 ---
 
 ## 📜 License
