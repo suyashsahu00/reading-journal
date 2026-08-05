@@ -214,6 +214,9 @@ about people, objects, nature, scenarios, and the world around me.
 > *"Music is not just music; it is a way to escape the reality you don’t want to live in."*
 > — Suyash Sahu, July 19, 2026
 
+> *"While listening to most Hindi songs, and in English and other languages, this also happens: I listen to the lyrics and try to decode every single sentence. I definitely want to say that you’re going to fall in love with the lyrics. Even the “thread connection” is not just a thread connection; it is the connection of two genuine cosmic souls. 🧡"*
+> — Suyash Sahu, August 5, 2026
+
 ---
 
 ### 📖 The Missing Manual
