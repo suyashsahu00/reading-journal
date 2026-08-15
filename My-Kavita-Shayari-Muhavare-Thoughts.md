@@ -352,7 +352,7 @@ Enjoy my writing, and yes, follow these steps while reading:
 She has my number she has my name,<br>
 She has that much courage but she never came...<br>
 She kept on telling herself that there is always constraints...<br>
-Solving constraints was a different task, I know she has courage but she never came.<br>
+Solving constraints was a difficult task, I know she has courage but she never came.<br>
 <br>
 
 > — Suyash Sahu, August 5, 2025
