@@ -170,6 +170,9 @@ about people, objects, nature, scenarios, and the world around me.
 > Not every woman can achieve this in her entire lifetime; only a few gems can. Most are not worthy or deserving enough to earn this title in their entire lifetime."*
 > — Suyash Sahu, September 15, 2026
 
+> *"Death is among the most beautiful things that a human can have!!!"*
+> — Suyash Sahu, September 22, 2026
+
 ---
 
 ### 🌿 Nature
