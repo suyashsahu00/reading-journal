@@ -176,6 +176,12 @@ about people, objects, nature, scenarios, and the world around me.
 > *"If changing men gives women satisfaction, then prostitutes sitting in brothels would be the happiest women in the world."*
 > — Suyash Sahu, October 6, 2026
 
+> *"Love is one of the biggest scams that humans want to be scammed by."*
+> — Suyash Sahu, October 8, 2026
+
+> *"Parents fool you by saying that they are going to be with you and adore you for life."*
+> — Suyash Sahu, October 8, 2026
+
 ---
 
 ### 🌿 Nature
