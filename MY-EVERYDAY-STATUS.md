@@ -143,6 +143,8 @@
 > _"My childhood was not like a normal kid's. That made me an INTJ and more mature than most people around the globe during my childhood. Even with that much maturity, that much caring, and that much understanding, I can read people just by looking into their eyes. They pause; their time between chats is a lot. And God is definitely going to give me my childhood back—He has to!!!"_
 > — Suyash Sahu, July 23, 2026
 
+> _"I have never completely knelt before any woman or man, and I never will. I am not your so-called beloved guy or girl who is going to kneel before you. Tolerate me, leave me, or—better yet, as my old curse goes, let me leave you."_
+> — Suyash Sahu, October 9, 2026
 
 ---
 
